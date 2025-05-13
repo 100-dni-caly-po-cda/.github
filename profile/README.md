@@ -1,4 +1,4 @@
-## 100 dni do matury 𝐜𝐚ł𝐲  po Polsku (2025) 𝐎𝐠𝐥ą𝐝𝐚𝐣
+## 100 dni do matury 𝐜𝐚ł𝐲 cda po Polsku ~2025
 
 ### .github
 
